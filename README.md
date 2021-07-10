@@ -1,0 +1,4 @@
+# GRIP-
+GRIP @TASK 1
+THE SPARKS FOUNDATION TASK 1 
+by Ritika Katwe
